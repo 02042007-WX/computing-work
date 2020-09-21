@@ -13,7 +13,7 @@ His hands going closer to her cheeks, pulling her lips close to his. "I don't kn
 
 "Justin..." Sticky liquid began to flow down her cheeks, "You know I can't either." Her heart hammering. She pursed her lips onto his, her hands coming into contact with his soft warm cheeks. 
 
-It felt like opening up her soul, tasting, feeling and seeing every colour of the rainbow in her own way, almost like catching a smile in a bottle, its softness, its sweetness… Like breathing through his soft warm lips, like a cool inhalation of oxygen to warm the soul... 
+It felt like opening up her soul, tasting, feeling and seeing every colour of the rainbow in her own way, almost like catching a smile in a bottle, its softness, its sweetness… Like breathing through his soft warm lips, like a cool inhalation of oxygen to warm her soul... 
 
 Nothing in the world exist but them.
 
