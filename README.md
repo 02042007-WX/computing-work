@@ -53,7 +53,8 @@ That was not him.
 No way. 
 
 He sauntered out of the dark room, his face covered with the crimson red liquid he had grown accustomed to as he gave a creepy cackle of laughter. 
-The girl laid on the bed like a limp doll having all her stuffings wrenched out of her body, her lengs bent in an awkward angle. Her eye sockets hollow, her bare body having multiple vicious cuts, some of her fingers disconnected from a body as if a mighty beast has effortlessly torn them off like a measley twig. 
+
+The girl laid on the bed like a limp doll having all her stuffings wrenched out of her body, her lengs bent in an awkward angle. Her eye sockets hollow, her bare body having multiple vicious cuts, some of her fingers disconnected from a body as if a mighty beast has effortlessly torn them off like a measley twig. She was just there, displayed as if he was one of his fine artworks.
 
 
 Suddenly, someone pulled him out of the infinite darkness. He fervently hoped that it was someone who would save him. 
