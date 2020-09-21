@@ -12,7 +12,7 @@ He searched all over.
 
 PLS HELP ME DECIDE - THE ONE ABOVE, OR THIS
 
-#No one (everything beneath this is of a same story, or what I assume to be what Wei Xuan intended it to be~ Cherilyn) 
+# No one. 
 He ran. He tried. 
 He picked up speed, just to run into nowhere. 
 He did not know what he was searching for, something important, something that was of paramount importance. 
@@ -44,7 +44,7 @@ Taking up a knife, he began skillfully, slice up the fresh meat into small delic
 No. 
 He. He would never do that. 
 
-Encounter #3 Stabby stabby 
+Encounter #3 Stabby stabby  
 Her body was crushed under the weight of his. Bottom bare. Her scream pierced through the crisp midnight air, like a metal bullet searing through ones' body. Her hands were tied firmly to the bed frame. He ran a knife across her smooth fresh naked body. Immediately, she ceased her screaming lest he do something much more terrible. She endeavoured preventing the tears pricking at her innocent eyes, threatening to fall. In contrast, his eyes were dark, beautiful, yet menacing. revelling the sweet, sweet little operation he had planned. 
 "Let's play a little game," he muttered, using his finger to trace right down her stomach to her thighs. "If you listen good, you will be fine. BUT, if u don't. Well.... I can't save you," he violently stabbed the knife into the mattress missing her cheeks by inches. 
 
@@ -63,5 +63,3 @@ A black cloth had covered his head.
 He was devoid of any vision. But he could feel a cold metal device coming in contact with his head. 
 Fear enveloped him. 
 "I'M INOCCENT! I NEVER KILLED THEM! I CAN EXPLIAN!" He struggled in his seat, as a large strong hand pressed his fidgeting hands tightly onto the chair. He could not handle all the pressure that were placed onto him. Tears began flowing from his eyes, down his sharp, beautiful chin. No one could make head or tail as of why someone who had a great life with opportunities ahead of him and someone with charming looks like he would commit this monstrosity. No one. Now, no one would even want to save such a monster. 
-
-Suddenly, news flooded into the execution room, breaking the process. "HE IS INNOCENT! He is innocent. The doctors have already proven, he... he has split personality."
