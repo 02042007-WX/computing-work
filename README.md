@@ -33,7 +33,7 @@ No.
 He would never do that. 
 More scenes rushed back into him. 
 He sat on a girl. Bottom bare. She screamed and struggle. Her hands tied firmly to the bed frame. He ran a knife across her smooth fresh naked body. She never dared to utter a word, her eyes filled with horror. His eyes dark, beautiful, yet menacing. 
-"Let's play a little game," he muttered, using his finger to trace right down her stomach to her thighs. "If you listen good, you will be fine. BUT, if u don't. Well.... I can't save you," he plunged the knife into the mattress missing her cheeks by inches. 
+"Let's play a little game," he muttered, his fingertips running down her stomach to her thighs. "If you listen good, you will be fine. BUT, if u don't. Well....," he plunged the knife into the mattress missing her cheeks by inches. "I can't save you."
 No. No, no, no. 
 That was not him. 
 No way. 
@@ -43,6 +43,12 @@ Suddenly, someone pulled him out of the infinite darkness.
 "What are your last words?" 
 He was strapped to a chair. The chair of death. 
 A black cloth had covered his head. 
-He could not see anything. But he could feel a cold metal device coming in contact with his head. 
-Fear enveloped him. 
-"I'M INOCCENT! I NEVER KILL THEM! I CAN EXPLIAN!" He began struggling in his seat, as a big strong hand pressed his fidgiting hands tightly onto the chair. He could not handle all the pressure that were placed onto him. Tears began flowing from his eyes, down his sharp, beautiful chin. No one could understand why someone who had such a good family and looks would be the serial killer. No one. Suddenly, news flooded into the execution room, breaking the process. "HE IS INNOCENT! He is innocent. The doctors have already proven, he... he has split personality."
+He could not see anything. 
+But he could feel a cold metal device coming in contact with his head. Fear enveloped him. 
+"I'M INOCCENT! I NEVER KILL THEM! I CAN EXPLIAN!" 
+He began struggling in his seat, as a big strong hand pressed his fidgiting hands tightly onto the chair. Tears began flowing from his eyes, down his sharp, beautiful chin. 
+No one could understand why someone who had such a good family and looks would be the serial killer. 
+No one. 
+"WAIT." 
+Someone crashed into the room. 
+"HE IS INNOCENT," his breadth uneven. "He has a spilt personality disorder."
