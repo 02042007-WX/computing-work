@@ -17,8 +17,10 @@ It felt like opening up her soul, tasting, feeling and seeing every colour of th
 
 Nothing in the world exist but them.
 
-She could not put them into words, nor has there get been any part of speech or figure of speech invented to describe it. Her hands gripping tighter around his neck. 
+She could not put them into words, nor has there been any part of speech or figure of speech invented to describe it. Her hands gripping tighter around his neck. 
 
 Its like an aphrodisiac, mixed with a Pandoras box effect, fireworks glowing deep inside as his lips coming into contact with hers.
 
-The dim glow of light pouring through the edges of leaves, showering onto them. As they pulled away, tears were hanging at the edge of her chin. Wipping them away with his thumb, "keep a smile up, "he muttered, "cause I don't want to see you crying because of me."
+The dim glow of light pouring through the edges of leaves, showering onto them. As they pulled away, tears were hanging at the edge of her chin. Wipping them away with his thumb, he muttered, "keep a smile up."
+
+"Cause I don't want to see you crying because of me."
