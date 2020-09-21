@@ -24,7 +24,7 @@ The feeling seemed to have numbed the immense pain in his gut and consciousness.
 A distant, familiar yet unfamiliar memory flashed into his mind. It was the first time he had ever done this although it was most definitely not the last. 
 
 [Encounter #1 Sweet scene of squeezing the life out of my lover <3]
-"Jaden..." she gagged, her brown eyes filled with betrayal and terror. He clasped his hands on her neck, squeezing every single breath out of her. His eyes were filled with happiness and excitement, a strong sinister aura radiating from him.
+"Jaden..." she gagged, her brown eyes filled with betrayal and terror. He gave no time for her to react as he clasped his hands on her neck, squeezing every single breath out of her. It was a piece of cake nonetheless. His eyes were filled with an insane happiness and excitement, a strong sinister aura radiating from him.
 
 His mind ached, as these horrible scenes flashed across his mind. His guilt was killing him, eating at his heart like a parasite. 
 
