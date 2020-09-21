@@ -17,7 +17,7 @@ It felt like opening up her soul, tasting, feeling and seeing every colour of th
 
 Nothing in the world exist but them.
 
-She could not put them into words, nor has there get been any part of speech or figure of speech invented to describe it.
+She could not put them into words, nor has there get been any part of speech or figure of speech invented to describe it. Her hands gripping tighter around his neck. 
 
 Its like an aphrodisiac, mixed with a Pandoras box effect, fireworks glowing deep inside as his lips coming into contact with hers.
 
