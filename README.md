@@ -23,6 +23,7 @@ Her dark eyes staring straight at him, her face turning pale. However, he never 
 His head throbed. Pain surging through. 
 No, he never did that. 
 He would never kill her. 
+
 He loved her. 
 "Please..." another voice pleaded. It vocals were female, young, fresh. He sharpened his sickle, as it shined under the frail light. Without second thought, he grinned, plunging it through the poor girl guts. As he slowly twisted the handle, a satisfying sound breaking the painful sobs and silence. Sticky liquid dripped from the wound, staining the girls white dress. Her eyes still fixated on him, her mouth spewing out red liquid. Her hands covered with the dark liquid, tightly gripping onto the edge of the sharp weapon  before crashing to the ground. 
 Her eyes still wide open, filled with hate and anger. 
