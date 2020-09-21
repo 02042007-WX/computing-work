@@ -13,4 +13,12 @@ His hands going closer to her cheeks, pulling her lips close to his. "I don't kn
 
 "Justin..." Sticky liquid began to flow down her cheeks, "You know I can't either." Her heart hammering. She pursed her lips onto his, her hands coming into contact with his soft warm cheeks. 
 
-His lips soft and warm, calming her delicate heart. The dim glow of light pouring through the edges of leaves, showering onto them. As they pulled away, tears were hanging at the edge of her chin. Wipping them away with his thumb, "keep a smile up, "he muttered, "cause I don't want to see you crying because of me."
+It felt like opening up her soul, tasting, feeling and seeing every colour of the rainbow in her own way, almost like catching a smile in a bottle, its softness, its sweetness… Like breathing through his soft warm lips, like a cool inhalation of oxygen to warm the soul... 
+
+Nothing in the world exist but them.
+
+Shencould not put them into words, nor has there get been any part of speech or figure of speech invented to describe it.
+
+Its like an aphrodisiac, mixed with a Pandoras box effect, fireworks glowing deep inside as his lips coming into contact with hers.
+
+The dim glow of light pouring through the edges of leaves, showering onto them. As they pulled away, tears were hanging at the edge of her chin. Wipping them away with his thumb, "keep a smile up, "he muttered, "cause I don't want to see you crying because of me."
