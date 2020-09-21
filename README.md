@@ -23,7 +23,7 @@ He felt as though his lungs were going to burst, a fiery feeling emerging in his
 The feeling seemed to have numbed the immense pain in his gut and consciousness. 
 A distant, familiar yet unfamiliar memory flashed into his mind. It was the first time he had ever done this although it was most definitely not the last. 
 
-[Encounter #1 Sweet scene of squeezing the life out of my lover <3
+[Encounter #1 Sweet scene of squeezing the life out of my lover <3]
 "Jaden..." she gagged, her brown eyes filled with betrayal and terror. He clasped his hands on her neck, squeezing every single breath out of her. His eyes were filled with happiness and excitement, a strong sinister aura radiating from him.
 
 His mind ached, as these horrible scenes flashed across his mind. His guilt was killing him, eating at his heart like a parasite. 
@@ -44,7 +44,7 @@ Taking up a knife, he began skillfully, slice up the fresh meat into small delic
 No. 
 He. He would never do that. 
 
-Encounter #3 Stabby stabby  
+[Encounter #3 Stabby stabby] 
 Her body was crushed under the weight of his. Bottom bare. Her scream pierced through the crisp midnight air, like a metal bullet searing through ones' body. Her hands were tied firmly to the bed frame. He ran a knife across her smooth fresh naked body. Immediately, she ceased her screaming lest he do something much more terrible. She endeavoured preventing the tears pricking at her innocent eyes, threatening to fall. In contrast, his eyes were dark, beautiful, yet menacing. revelling the sweet, sweet little operation he had planned. 
 "Let's play a little game," he muttered, using his finger to trace right down her stomach to her thighs. "If you listen good, you will be fine. BUT, if u don't. Well.... I can't save you," he violently stabbed the knife into the mattress missing her cheeks by inches. 
 
@@ -52,7 +52,7 @@ No. No, no, no.
 That was not him. 
 No way. 
 
-He left the dark room, his face covered with the familiar red liquid as he gave a creepy cackle of laughter. 
+He sauntered out of the dark room, his face covered with the familiar red liquid as he gave a creepy cackle of laughter. 
 The girl laid on the bed like a limp doll having all her stuffings wrenched out of her body, her lengs bent in an awkward angle. Her eye sockets hollow, her bare body having multiple vicious cuts, some of her fingers disconnected from a body as if a mighty beast has effortlessly torn them off like a measley twig. 
 
 
