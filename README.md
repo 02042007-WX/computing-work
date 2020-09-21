@@ -23,7 +23,7 @@ He felt as though his lungs were going to burst, a fiery feeling emerging in his
 The feeling seemed to have numbed the immense pain in his gut and consciousness. 
 A distant, familiar yet unfamiliar memory flashed into his mind. It was the first time he had ever done this although it was most definitely not the last. 
 
-Encounter #1 Sweet scene of squeezing the life out of my lover <3
+[Encounter #1 Sweet scene of squeezing the life out of my lover <3
 "Jaden..." she gagged, her brown eyes filled with betrayal and terror. He clasped his hands on her neck, squeezing every single breath out of her. His eyes were filled with happiness and excitement, a strong sinister aura radiating from him.
 
 His mind ached, as these horrible scenes flashed across his mind. His guilt was killing him, eating at his heart like a parasite. 
@@ -35,7 +35,7 @@ No, he would never do that to her.
 He would never kill her. 
 He loved her. 
 
-Encounter #2 World Class Chef 
+[Encounter #2 World Class Chef]
 "Please..." another voice pleaded. Its vocals were female, young, fresh. He sharpened his sickle, as it glistened brilliantly under the frail light. Without second thought, he grinned, plunging it through the poor girl guts. As he slowly twisted the handle, a satisfying sound broke the painful sobs. And then, silence. Sticky liquid dripped from the wound, staining the girl's pure white dress. Her eyes still fixated on him, her mouth spewing out red, crimson liquid. Her hands were covered with the dark ill-omened liquid, with the last breath lingering in her, she clutched it tightly before crashing violently to the ground. 
 Her eyes still wide open, filled with that of an expression of anger and hatred before she brutally had her life taken away from her. 
 He pulled back the sickle, hurling into a series of wicked laughter. Soft, slippery, jelly like solids slid out of her body. She would utter a word no more. Pain crushed his mind as he crubled downt ot he ground like fine dust, unable to handle the aurging guilt any longer. The pain was crashing into him, like waves crashing onto the rocks near shore. He bent down, dipping his fingers into her open would. As he slowly traced lines on his cheek leaving behind trails of red, as it gently flowed down. 
