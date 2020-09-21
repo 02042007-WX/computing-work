@@ -6,12 +6,12 @@ Smiling, she plunged into the warm water. Picking her up from the depths of the 
 "Don't leave this time," his breadth becoming heavy, his voice becoming dry. Other than the crashing sound of water, all was left was their breathing. Her vision turning blur, as she pressed a smile, her chest tightening. She nodded, pulling him closer. 
 His hands going closer to her cheeks, pulling her lips close to his. "I don't know how to live without you." 
 "Justin..." Sticky liquid began to flow down her cheeks, "You know I can't either." Her heart hammering. She pursed her lips onto his, her hands coming into contact with his soft warm cheeks. 
-His lips soft and warm, calming her delicate heart. The dim glow of light pouring through the edges of leaves, showering onto them. As they pulled away, tears were hanging at the edge of her chin. Wipping them away with his thumb, he muttered, "keep a smile up, cause I don't want to see you crying because of me."
-He searched all over. 
+His lips soft and warm, calming her delicate heart. The dim glow of light pouring through the edges of leaves, showering onto them. As they pulled away, tears were hanging at the edge of her chin. Wipping them away with his thumb, "keep a smile up, "he muttered, "cause I don't want to see you crying because of me."
 
 
 PLS HELP ME DECIDE - THE ONE ABOVE, OR THIS
 
+He searched all over. 
 He ran. He tried. 
 Yet it was all black at the end. 
 He did not know what he was searching for, something important, something that meant alot more to him. 
